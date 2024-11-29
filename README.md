@@ -40,4 +40,4 @@ C) 2.lift
 
 10.Arrivals
 
-![390893829-5e89af9b-615d-4677-8998-4535adec814b](https://github.com/user-attachments/assets/be78b060-d5a0-43ba-b6ce-a13e03420b5b)
+![английский](https://github.com/user-attachments/assets/44088ac5-0a71-4b1e-b8ff-edaf57378089)
